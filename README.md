@@ -1,1 +1,1 @@
-# Mvkinley-Rice-Internship
+# Mckinley-Rice-Internship
